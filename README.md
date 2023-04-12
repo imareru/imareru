@@ -1,4 +1,4 @@
-### HI THERE!
+### Hi
 
 About me:
 - 💻 IT student
